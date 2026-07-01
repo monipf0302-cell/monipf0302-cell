@@ -1,6 +1,6 @@
 # ABOUT ME
 
-👩‍💼Polical Scientist
+👩‍💼Political Scientist
 
 - 🔭 I’m currently working as a Legislative and Government Affairs Advisor.
 - 🌱 I’m currently learning a little bit about data analysis and also english as a second language. 
